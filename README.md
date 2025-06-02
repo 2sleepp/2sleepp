@@ -2,7 +2,7 @@
 
 　　 :: hello !!!! feel free to int or c + h with me if you'd like !
 
-fandoms ᓚ₍⑅^..^₎♡ ,,   op , jjba , soul eater , bleach , and tg
+fandoms ᓚ₍⑅^..^₎♡　　,,   op , jjba , soul eater , bleach , and tg
 　　
 		
 	◞ ◟ 𑁬　　﹒　　❛　　💮　　　𓂂
