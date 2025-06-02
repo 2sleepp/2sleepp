@@ -2,9 +2,11 @@
 
 　　 :: hello !!!! feel free to int or c + h with me if you'd like !
 
-fandoms ᓚ₍⑅^..^₎♡ ,,　　op , jjba , soul eater , bleach , rk , saiki k , and csm .
+fandoms ᓚ₍⑅^..^₎♡ ,,　　op , jjba , soul eater , bleach , rk , saiki k , csm , tgc.
 　　
 		
 	◞ ◟ 𑁬　　﹒　　❛　　🍏　　　𓂂
 
 please no heavy inspo, and don't copy my characters
+
+info page coming soon idk
