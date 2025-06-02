@@ -2,7 +2,7 @@
 
 　　 :: hello !!!! feel free to int or c + h with me if you'd like !
 
-fandoms ᓚ₍⑅^..^₎♡ ,,　　op , jjba , soul eater , bleach , rk , and saiki k
+fandoms ᓚ₍⑅^..^₎♡ ,,　　op , jjba , soul eater , bleach , rk , saiki k , and csm .
 　　
 		
 	◞ ◟ 𑁬　　﹒　　❛　　🍏　　　𓂂
