@@ -5,6 +5,6 @@
 fandoms ᓚ₍⑅^..^₎♡ ,,　　op , jjba , soul eater , bleach , and tg
 　　
 		
-	◞ ◟ 𑁬　　﹒　　❛　　💮　　　𓂂
+	◞ ◟ 𑁬　　﹒　　❛　　🍏　　　𓂂
 
 please no heavy inspo, and don't copy my characters
